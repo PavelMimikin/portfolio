@@ -17,5 +17,5 @@
 - Получить стажировку в IT-компании
 
 ## 📫 Как со мной связаться
-- Telegram: [@Lihach_PZ](https://t.me/@Lihach_PZ)
+- Telegram: [@Lihach_PZ](https://t.me/Lihach_PZ)
 - Email: pasamimikin@gmail.com
